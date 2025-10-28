@@ -1,5 +1,3 @@
 # Nettoyer sa classe
 
----
-
 Garder sa classe propre et rangée permet d’être plus concentré et productif. On retrouve facilement ce dont on a besoin, ce qui fait gagner du temps. Une classe ordonnée réduit le stress et crée une ambiance agréable. Cela reflète aussi une image positive et motivante. Travailler dans un espace propre favorise la motivation et la bonne humeur. On se sent plus organisé et efficace au quotidien. Cela encourage de bonnes habitudes et une meilleure gestion du temps. Enfin, cela donne envie de travailler dans de bonnes conditions.
